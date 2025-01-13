@@ -29,6 +29,7 @@ Ngưu tất bắc (Radix Achyranthis bidentatae): Hoạt huyết, thông kinh ho
 Sử dụng kết hợp các thảo dược trên giúp thận được bồi bổ, khí huyết lưu thông dễ dàng, hệ cơ xương khớp nhờ đó cũng được nuôi dưỡng đầy đủ, tránh được những cơn đau nhức do tắc nghẽn, chèn ép mạch máu, cân cơ và ngay tại ổ khớp.
 
 8 thảo dược này không chỉ giúp giảm triệu chứng đau nhức khớp mà còn bồi bổ, nuôi dưỡng hệ cơ xương khớp một cách toàn diện khi sử dụng lâu dài. Cụ thể:
+-----------------------------------------------------
 
 Bổ khí huyết, gan thận
 
