@@ -1,4 +1,5 @@
 Người mắc bệnh xương khớp có nên sử dụng thảo dược?
+---------------------------------------------------
 
 Hiện nay, xu hướng của những người mắc các bệnh lý xương khớp là lựa chọn các vị thuốc, cây thuốc có nguồn gốc từ thiên nhiên, an toàn, lành tính, đặc biệt là những thảo dược đã được dân gian sử dụng từ bao đời nay.
 
